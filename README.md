@@ -1,2 +1,2 @@
 # Solar-Release
-CHINPO
+Joke virus.
